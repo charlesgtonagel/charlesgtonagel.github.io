@@ -1,2 +1,2 @@
-# charlesgtonagel.github.io
-"Hey yall" 
+# skool is hard
+Hey yall 
