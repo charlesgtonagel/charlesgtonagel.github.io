@@ -16,3 +16,11 @@ A. Then it hit me.
 Wisdom.
 During this pandemic I think you should live your life. Don't get caught up in all the stress have fun while being smart.
 You miss 100% of the shots you don't take. When you are debating about doing something think of that:)
+
+
+
+
+
+
+
+  My name is Charlie and I want to amke you smile so I hope you laugh at my jokes. Thx
