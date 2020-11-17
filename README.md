@@ -8,3 +8,11 @@ A. There’s no menu: You get what you deserve.
 3. I couldn't figure out why the baseball kept getting larger. 
 A. Then it hit me.
 4. And the Lord said unto John, "Come forth and you will receive eternal life". John came fifth and won a toaster.
+
+
+
+
+
+Wisdom.
+During this pandemic I think you should live your life. Don't get caught up in all the stress have fun while being smart.
+You miss 100% of the shots you don't take. When you are debating about doing something think of that:)
