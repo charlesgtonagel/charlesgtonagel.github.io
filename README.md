@@ -1,4 +1,4 @@
-# charlesgtonagel.github.io
+# Charlie's
 Hey yall
 Skool is hard so hopefully this jokes will make your day better:)
 1. Why do we tell actors to “break a leg?”
