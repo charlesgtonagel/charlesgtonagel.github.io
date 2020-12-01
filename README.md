@@ -1,5 +1,11 @@
 # Charlie's
 Hey yall
+
+Vote Charles Tonagel and Caitlyn Carnes for Social Studies Class president in Mrs. Yuste's class.
+"Better hair than Donald and Younger than Joe"
+
+
+
 Skool is hard so hopefully this jokes will make your day better:)
 
 Jokes: 
